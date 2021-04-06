@@ -1,4 +1,4 @@
-# Pok-Brawl-v2
+# Poke-Brawl-v2
 
 The 2 update from Pokè Brawl is here also I mean 
 New thinks coming but only one thing is new..
